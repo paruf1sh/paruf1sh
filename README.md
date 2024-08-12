@@ -34,6 +34,8 @@ i rlly doubt you'll meet anyone besides us, but it can be good to know :)
 
 paru uses she/byte and i use he/him :D
 
+#obligatory blinkies section
+
 ![tumblr_a407b2a4b389f8ad7621681ed79df005_eb2b9bbd_1280](https://github.com/user-attachments/assets/fa114723-ec2b-4952-a899-eb8abcd95ca9)
 ![image](https://github.com/user-attachments/assets/d7a538a9-1f49-4859-9102-f665bf74651c)
 ![tumblr_3c0cec249839f9d8df59fa349a2153a6_1ab5745e_640](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
