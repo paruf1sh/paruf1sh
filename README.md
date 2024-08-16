@@ -47,6 +47,11 @@ pls just dont be weird around me haha
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
 
 # MY DISC USERNAME IS PARUF1SH BTW
+lmk if u wanna add me :3 
+
+
+
+
 
 
 # obligatory blinkies section (POSSIBLE EYESTRAIN!!)
