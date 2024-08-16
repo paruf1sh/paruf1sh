@@ -14,13 +14,9 @@ transmasc and gay - leave me alone if u have a problem with this!!!
 In a commited relationship. Dont flirt!! our 1 year anniversary is 8/24/24 :) 
 
   beware i do say the slurs that i can reclaim- lmk if ur uncomfortable!!
-  ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
-
-
-  I'm kemonomimi :3 (dogboy specifically) 
-  I say stuff like "woof" a lot kinda just as a stim, lmk if it weirds u out and i'll stop.
  
-  ![tumblr_d4d628d9a2acf5c17a7cdc3ce3319839_de45afb3_250](https://github.com/user-attachments/assets/527092d0-eedd-4966-861f-2486de518910)
+  ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
+ 
   
   DONT use pet names/nicknames if we aren't close. just call me charlie. if we are have at it, idc too much.
 
