@@ -29,9 +29,27 @@ Sys of around 7 alters. We have two hosts, Charlie and Paruko ![64634be786d11deb
 
 i rlly doubt you'll meet anyone besides us, but it can be good to know :)
 
-paru uses she/byte and i use he/him :D
+paru uses she/byte and i use he/him :)
 
-# obligatory blinkies section
+
+# Ponytown general info!
+#### my dni and stuff hheeh
+
+Int!!!: under 18 (im a minor), splatoon players, hermitcraft and minecraft enjoyers, (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, and other nice people!!!!
+
+Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, k!nk or nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
+pls just dont be weird around me haha  
+
+![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
+
+![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
+![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
+![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
+
+# MY DISC USERNAME IS PARUF1SH BTW
+
+
+# obligatory blinkies section (POSSIBLE EYESTRAIN!!)
 
 ![tumblr_a407b2a4b389f8ad7621681ed79df005_eb2b9bbd_1280](https://github.com/user-attachments/assets/fa114723-ec2b-4952-a899-eb8abcd95ca9)
 ![image](https://github.com/user-attachments/assets/d7a538a9-1f49-4859-9102-f665bf74651c)
@@ -67,24 +85,6 @@ paru uses she/byte and i use he/him :D
 
 
 
-
-
-
-# Ponytown general info!
-#### my dni and stuff hheeh
-
-Int!!!: under 18 (im a minor), splatoon players, hermitcraft and minecraft enjoyers, (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, and other nice people!!!!
-
-Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, k!nk or nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
-pls just dont be weird around me haha  
-
-![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
-
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-
-# MY DISC USERNAME IS PARUF1SH BTW
 
 ![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
 
