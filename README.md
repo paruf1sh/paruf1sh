@@ -31,6 +31,8 @@ i rlly doubt you'll meet anyone besides us, but it can be good to know :)
 
 paru uses she/byte and i use he/him :)
 
+### if we're close and you dont have me added yet, my discord username is paruf1sh! 
+
 
 # Ponytown general info!
 #### my dni and stuff hheeh
@@ -44,11 +46,7 @@ pls just dont be weird around me haha
 
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-
-# MY DISC USERNAME IS PARUF1SH BTW
-lmk if u wanna add me :3 
-
+![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052) 
 
 
 
