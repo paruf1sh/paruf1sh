@@ -89,7 +89,6 @@ lmk if u wanna add me :3
 
 
 
-
-
+# ty for reading!
 ![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
 
