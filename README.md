@@ -9,12 +9,9 @@ Hii im charlie!! u can also call me Paru
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 
 
-transmasc and gay - leave me alone if u have a problem with this /srs
- ![tumblr_fe8fbe8a122c3b36c6bd43d0b5a15b15_1b44f30c_250](https://github.com/user-attachments/assets/69909270-f444-4ca5-b1c4-a629c4232fd0)
+transmasc and gay - leave me alone if u have a problem with this!!!
  
-In a commited relationship. Dont flirt!!
-
-1 year anniversary is 8/24/24 
+In a commited relationship. Dont flirt!! our 1 year anniversary is 8/24/24 :) 
 
   beware i do say the slurs that i can reclaim- lmk if ur uncomfortable!!
   ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
