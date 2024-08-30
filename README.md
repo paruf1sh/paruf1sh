@@ -3,39 +3,37 @@
 # i am a threat to national security
 !! Welcome to my page!! 
 
-Hii im charlie!! u can also call me Paru
+Hii im charlie!! u can also call me paru or spook :)
 
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 
 
-transmasc and gay - leave me alone if u have a problem with this!!!
- 
-In a commited relationship. Dont flirt!! our 1 year anniversary is 8/24/24 :) 
+im transmasc and bisexual, currently taken so please dont flirt
 
-  beware i do say the slurs that i can reclaim- lmk if ur uncomfortable!!
- 
+
+  
+  i do say slurs if i can reclaim them, so if you're uncomfortable with that just tell me
+  
   ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
  
   
-  DONT use pet names/nicknames if we aren't close. just call me charlie. if we are have at it, idc too much.
+  DONT use pet names/nicknames if we aren't close. just call me charlie. 
+  If i know u pretty well u can totally use nicknames (shout out to chiffon, who calls me charjabug /aff)
 
 
-Sys of around 7 alters. We have two hosts, Charlie and Paruko ![64634be786d11debe86c8c42_86](https://github.com/user-attachments/assets/d7a27be0-2cb8-41d7-99b0-02ec28ed4259)
-
-i rlly doubt you'll meet anyone besides us, but it can be good to know :)
-
-paru uses she/byte and i use he/him :)
 
 ### if we're close and you dont have me added yet, my discord username is paruf1sh! 
+on discord my dni is just like
+pedos, MAPs, zoophiles, and proshippers. if you reveal yourself to be one of these im blocking you no mater how close we are. 
 
 
 # Ponytown general info!
 #### my dni and stuff hheeh
 
-Int!!!: under 18 (im a minor), splatoon players, hermitcraft and minecraft enjoyers, (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, and other nice people!!!!
+Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, and other nice people!!!!
 
-Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, k!nk or nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
+Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, b0ndage skins/nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
 pls just dont be weird around me haha  
 
 ![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
@@ -83,6 +81,6 @@ pls just dont be weird around me haha
 
 
 
-# ty for reading!
+# ty for reading! have a great day :D
 ![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
 
