@@ -81,6 +81,6 @@ pls just dont be weird around me haha
 
 
 
-# ty for reading! have a great day :D
+# ty for reading! have a great day X)
 ![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
 
