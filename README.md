@@ -13,8 +13,6 @@ im transmasc and bisexual, currently taken so please dont flirt
 
 
   
-  (https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
- 
   
   DONT use pet names/nicknames if we aren't close. just call me charlie. 
   If i know u pretty well u can totally use nicknames (shout out to chiffon, who calls me charjabug /aff)
