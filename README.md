@@ -13,9 +13,7 @@ im transmasc and bisexual, currently taken so please dont flirt
 
 
   
-  i do say slurs if i can reclaim them, so if you're uncomfortable with that just tell me
-  
-  ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
+  (https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
  
   
   DONT use pet names/nicknames if we aren't close. just call me charlie. 
