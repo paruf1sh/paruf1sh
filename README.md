@@ -3,17 +3,14 @@
 # i am a threat to national security
 !! Welcome to my page!! 
 
-Hii im charlie!! u can also call me paru or spook :)
+Hii im charlie!!
 
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 
 
-im transmasc and bisexual, currently taken so please dont flirt
+im transmasc and bisexual, currently taken so please dont flirt lol
 
-
-  
-  
   DONT use pet names/nicknames if we aren't close. just call me charlie. 
   If i know u pretty well u can totally use nicknames (shout out to chiffon, who calls me charjabug /aff)
 
