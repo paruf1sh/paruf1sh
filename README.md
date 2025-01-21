@@ -10,7 +10,7 @@ Hii im charlie!!
 
 
 
-im transmasc, as well as techum and bisexual.currently taken by my lovely boyfriend, so dont flirt.
+### im transmasc, as well as techum and bisexual.currently taken by my lovely boyfriend, so dont flirt.
 
 i identify as computerkin and divinekin, making me both the divine AND the machine 😛
 
