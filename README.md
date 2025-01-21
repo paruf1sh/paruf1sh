@@ -31,9 +31,8 @@ pls just dont be weird around me haha
 
 ![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
 
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
-![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052) 
+
+![tumblr_858d1ed36949482778e5b0a633268d5b_a879ab22_2048](https://github.com/user-attachments/assets/d2ef2639-632f-4f3f-afde-c5178513c462)
 
 
 
