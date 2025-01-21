@@ -6,8 +6,9 @@
 
 Hii im charlie!!
 
-![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
-![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
+![tumblr_47e500f8c6189cd43b4bb95244d4541d_08a3a52c_2048](https://github.com/user-attachments/assets/ddcb135f-536f-43d6-9ff3-7294541ddd66)
+
+
 
 
 im transmasc and bisexual, currently taken so please dont flirt lol
