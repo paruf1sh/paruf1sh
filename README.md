@@ -23,7 +23,7 @@ im transmasc, as well as techum and bisexual.currently taken by my lovely boyfri
 # just general info!
 #### my dni and stuff hheeh
 
-Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), homestuck fans who arent borderline sexual offenders, cat people, LGBTQ+ freakos, other warrior cats kids who never quite grew out of it, furries, danny phantom fans, fellow objectkissers, and other nice people!!!! ![66b3e5d0c2ab246786ca1d5e_86](https://github.com/user-attachments/assets/28c80b9a-0765-43f7-bc6f-ececc6383a0d)
+Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), homestuck fans who arent borderline sexual offenders, cat people, LGBTQ+ freakos, other warrior cats kids who never quite grew out of it, furries, danny phantom fans, fellow objectkissers/techkissers, and other nice people!!!! 
 
 ![tumblr_790d398dcb58198e3588497d8ba4814d_a28af40e_250](https://github.com/user-attachments/assets/6b6f726b-675e-48fe-920b-f990cdacd61d)
 
