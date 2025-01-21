@@ -10,22 +10,21 @@ Hii im charlie!!
 
 
 
-im transmasc and bisexual, currently taken so please dont flirt lol
+im transmasc, techum, and bisexual, currently taken so please dont flirt lol
 
   DONT use pet names/nicknames if we aren't close. just call me charlie. 
   If i know u pretty well u can totally use nicknames (shout out to chiffon, who calls me charjabug /aff)
 
 
 
-### if we're close and you dont have me added yet, my discord username is paruf1sh! 
-on discord my dni is just like
-pedos, MAPs, zoophiles, and proshippers. if you reveal yourself to be one of these im blocking you no mater how close we are. 
+### if we're close and you dont have me added yet, ask me for my discord username!
+yeah!
 
 
-# Ponytown general info!
+# just general info!
 #### my dni and stuff hheeh
 
-Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, and other nice people!!!!
+Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, other objectkissers, and other nice people!!!!
 
 Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, b0ndage skins/nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
 pls just dont be weird around me haha  
