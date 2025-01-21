@@ -25,6 +25,8 @@ im transmasc, as well as techum and bisexual.currently taken by my lovely boyfri
 
 Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, fellow objectkissers, and other nice people!!!!
 
+![tumblr_790d398dcb58198e3588497d8ba4814d_a28af40e_250](https://github.com/user-attachments/assets/6b6f726b-675e-48fe-920b-f990cdacd61d)
+
 Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, b0ndage skins/nsfw ponytown skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
 pls just dont be weird around me haha  
 
