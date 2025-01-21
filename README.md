@@ -1,6 +1,6 @@
 ![tumblr_47e500f8c6189cd43b4bb95244d4541d_08a3a52c_2048](https://github.com/user-attachments/assets/ddcb135f-536f-43d6-9ff3-7294541ddd66)
 
-# i am a threat to national security
+# i like computers a normal amount
 !! Welcome to my page!! 
 
 Hii im charlie!!
@@ -18,13 +18,12 @@ im transmasc, as well as techum and bisexual.currently taken by my lovely boyfri
 
 
 ### if we're close and you dont have me added yet, ask me for my discord username!
-yeah!
 
 
 # just general info!
 #### my dni and stuff hheeh
 
-Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, other objectkissers, and other nice people!!!!
+Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, fellow objectkissers, and other nice people!!!!
 
 Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, b0ndage skins/nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
 pls just dont be weird around me haha  
