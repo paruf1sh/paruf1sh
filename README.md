@@ -2,7 +2,6 @@
 
 # i like computers a normal amount
 #### !! Welcome to my page !! 
-  [![HitCount](https://hits.dwyl.com/paruf1sh/paruf1sh.svg?style=flat-square)](http://hits.dwyl.com/paruf1sh/paruf1sh)
 
 Hii im charlie!!
 
