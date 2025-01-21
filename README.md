@@ -19,7 +19,7 @@ i identify as computerkin and divinekin, making me both the divine AND the machi
 
 
 
-### if we're close and you dont have me added yet, ask me for my discord username!
+#### if we're close and you dont have me added yet, ask me for my discord username!
 
 
 # just general info!
