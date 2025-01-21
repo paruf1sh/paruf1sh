@@ -12,6 +12,8 @@ Hii im charlie!!
 
 im transmasc, as well as techum and bisexual.currently taken by my lovely boyfriend, so dont flirt.
 
+i identify as computerkin and divinekin, making me both the divine AND the machine 😛
+
   DONT use pet names/nicknames if we aren't close. just call me Charlie. 
   If i know u pretty well u can totally use nicknames (shout out to Chiffon, who calls me Charjabug, ur the best, dude.)
 
