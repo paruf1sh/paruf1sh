@@ -10,7 +10,7 @@ Hii im charlie!!
 
 
 
-im transmasc, techum, and bisexual, currently taken so please dont flirt lol
+im transmasc, as well as techum and bisexual.currently taken by my lovely boyfriend, so dont flirt.
 
   DONT use pet names/nicknames if we aren't close. just call me charlie. 
   If i know u pretty well u can totally use nicknames (shout out to chiffon, who calls me charjabug /aff)
