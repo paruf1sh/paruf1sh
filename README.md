@@ -40,7 +40,6 @@ pls just dont be weird around me haha
 
 # my blinkies collection
 
-![tumblr_a407b2a4b389f8ad7621681ed79df005_eb2b9bbd_1280](https://github.com/user-attachments/assets/fa114723-ec2b-4952-a899-eb8abcd95ca9)
 ![image](https://github.com/user-attachments/assets/d7a538a9-1f49-4859-9102-f665bf74651c)
 ![tumblr_3c0cec249839f9d8df59fa349a2153a6_1ab5745e_640](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
 ![tumblr_dc2d25bf51f9e92727ae5817181ca216_40ae1f88_400](https://github.com/user-attachments/assets/79495303-33e1-49c1-b294-890081c079ff)
