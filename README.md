@@ -1,12 +1,11 @@
-![tumblr_a0bd00480ec982162c855b48f0bd0071_0be33647_100](https://github.com/user-attachments/assets/f284f430-3d79-494c-9f21-4e6c43a2be75)
-
+![tumblr_47e500f8c6189cd43b4bb95244d4541d_08a3a52c_2048](https://github.com/user-attachments/assets/ddcb135f-536f-43d6-9ff3-7294541ddd66)
 
 # i am a threat to national security
 !! Welcome to my page!! 
 
 Hii im charlie!!
 
-![tumblr_47e500f8c6189cd43b4bb95244d4541d_08a3a52c_2048](https://github.com/user-attachments/assets/ddcb135f-536f-43d6-9ff3-7294541ddd66)
+![tumblr_a0bd00480ec982162c855b48f0bd0071_0be33647_100](https://github.com/user-attachments/assets/f284f430-3d79-494c-9f21-4e6c43a2be75)
 
 
 
