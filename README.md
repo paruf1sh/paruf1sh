@@ -1,6 +1,6 @@
 ![tumblr_47e500f8c6189cd43b4bb95244d4541d_08a3a52c_2048](https://github.com/user-attachments/assets/ddcb135f-536f-43d6-9ff3-7294541ddd66)
 
-# i like computers a normal amount
+# i definitely like old computers a normal amount
 #### !! Welcome to my page !! 
 
 Hii im charlie!!
