@@ -1,4 +1,5 @@
-![paruko](https://github.com/user-attachments/assets/595fabd5-8b90-403b-9e58-f1089b2e2686)
+![tumblr_a0bd00480ec982162c855b48f0bd0071_0be33647_100](https://github.com/user-attachments/assets/f284f430-3d79-494c-9f21-4e6c43a2be75)
+
 
 # i am a threat to national security
 !! Welcome to my page!! 
@@ -75,6 +76,8 @@ pls just dont be weird around me haha
 ![tumblr_fc1ec7da4d22dfba3888cc17b74533b6_f61a4069_250](https://github.com/user-attachments/assets/f3de59c4-6475-48d9-a91b-48303850acb7)
 ![tumblr_91b748f3c8ab0dd49fbfd66e857dc6b8_5d7518de_250](https://github.com/user-attachments/assets/07ee7cf3-c1e6-4e94-9947-f9d81ec9d8ab)
 ![tumblr_f0e4ec808c99345717893e3dda9f102e_33cf851a_250](https://github.com/user-attachments/assets/6d0b82c2-09cb-494d-a319-583a65d50ec1)
+![tumblr_25e547f68642c6d658cc0476cf2f9c95_9bf2c508_250](https://github.com/user-attachments/assets/2a55c941-64f5-4bf9-9570-c38e37efda9f)
+
 
 
 
