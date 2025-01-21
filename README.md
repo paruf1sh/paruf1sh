@@ -29,7 +29,7 @@ Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly th
 Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, b0ndage skins/nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
 pls just dont be weird around me haha  
 
-![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
+![tumblr_e3b357fc5b16ef7f6c842c529c9926ad_890c19ed_250](https://github.com/user-attachments/assets/2578d4da-822f-4725-aa73-1c5ee9f6ee50)
 
 
 ![tumblr_858d1ed36949482778e5b0a633268d5b_a879ab22_2048](https://github.com/user-attachments/assets/d2ef2639-632f-4f3f-afde-c5178513c462)
