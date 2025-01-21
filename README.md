@@ -82,5 +82,4 @@ pls just dont be weird around me haha
 
 
 # ty for reading! have a great day X)
-![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
-
+![tumblr_61cd1aeed49e4ed07cfbe58e93992cae_8875fd41_500](https://github.com/user-attachments/assets/fb7d7a00-d07c-4549-9e34-2772211e87c4)
