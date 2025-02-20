@@ -1,7 +1,8 @@
-![tumblr_47e500f8c6189cd43b4bb95244d4541d_08a3a52c_2048](https://github.com/user-attachments/assets/ddcb135f-536f-43d6-9ff3-7294541ddd66)
 
-# i definitely like old computers a normal amount
-#### !! Welcome to my page !! 
+![tumblr_168c20a0a327548dfba708ac9583aa3a_157dc96d_1280](https://github.com/user-attachments/assets/fcbd1728-9953-4ffe-98c9-ac7461e20112)
+
+# Nice to meet youuu,
+#### welcome to my page !! 
 
 Hii im charlie!!
 
