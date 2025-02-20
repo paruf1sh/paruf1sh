@@ -3,7 +3,7 @@
 # Nice to meet youuu,
 #### welcome to my page !! 
 
-Hii im charlie!!
+Hii im charlie!! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 
 ![tumblr_a0bd00480ec982162c855b48f0bd0071_0be33647_100](https://github.com/user-attachments/assets/f284f430-3d79-494c-9f21-4e6c43a2be75)
 
