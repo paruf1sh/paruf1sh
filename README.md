@@ -2,8 +2,8 @@
 ![tumblr_f9e439ce15c2137ea786ea1b271743e0_ff58ae1a_1280](https://github.com/user-attachments/assets/360635e1-85f6-4380-89fb-2458cd37a7ff)
 
 
-# Nice to meet youuu, ![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
-### welcome to my page !! 
+# Nice to meet youuu, 
+### welcome to my page !! ![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
 
 Hii im charlie!!
 
