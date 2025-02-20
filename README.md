@@ -97,4 +97,5 @@ pls just dont be weird around me lol
 
 
 # ty for reading! have a great day X)
- ![image_2025-02-19_215855951-removebg-preview](https://github.com/user-attachments/assets/855f6cc3-f5dc-44c9-ba71-178d0e549f5c)
+![Untitled66_20250219230156](https://github.com/user-attachments/assets/14f3e6e7-e8a1-405e-a247-ac3760529e71)
+
