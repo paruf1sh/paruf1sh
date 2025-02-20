@@ -26,7 +26,7 @@ i have both a boyfriend and a moirail, both of whom i love very very very much
 #### Homestuck, Splatoon 3, Dandy's World, 
 
 ### DNI
-proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), people who indulge in nsfw (bodily a minor), transgender exclusive radical feminists, lesboys/gaygirls or whatever u guys call urselves, pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context.
+proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), people who indulge in nsfw (bodily a minor), transgender exclusive radical feminists, lesboys/turigirls (nothing against ANY of you as people), pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context.
 
 ##### dont be a creep pls
 
