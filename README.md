@@ -2,7 +2,7 @@
 ![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
 
 # Nice to meet youuu, ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
-#### welcome to my page !! 
+## welcome to my page !! 
 
 Hii im charlie!!
 
