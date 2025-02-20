@@ -3,11 +3,11 @@
 
 
 # Nice to meet youuu, 
-### welcome to my page !! ![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
+### welcome to my page !! 
 
 Hii im charlie!!
 
-
+![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
 
 #### im transmasculine, as well as demisexual and biromantic
 
