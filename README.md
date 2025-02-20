@@ -19,9 +19,11 @@ i have both a boyfriend and a moirail/qpp, both of whom i love very very very mu
 ## MAIN FRONTS
 -  CHARLIE (me!) - he / star - Host + Memory Holder 
 
--  TYZIAS  - she / he ∿ Stabilizer + Internal Self Helper 
+-  TYZIAS  - she / he - Stabilizer + Internal Self Helper 
 
-- CLYDE  - it / he ∿ Protector  +  Mood Booster
+- CLYDE  - it / he - Protector  +  Mood Booster
+
+- VEE  - she / her - Protector  +  Emotional Regulator
 
 ![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
 ![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
