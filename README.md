@@ -25,12 +25,9 @@ i have both a boyfriend and a moirail, both of whom i love very very very much
 #### Homestuck, Splatoon 3, Dandy's World, 
 
 ### DNI
+proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), people who indulge in nsfw (bodily a minor), transgender exclusive radical feminists, lesboys/gaygirls or whatever u guys call urselves, pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context.
 
-Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), homestuck fans who arent borderline sexual offenders, cat people, LGBTQ+ freakos, other warrior cats kids who never quite grew out of it, furries, danny phantom fans, fellow objectkissers/techkissers, and other nice people!!!! 
-
-Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), b0ndage/nsfw ponytown skins, TERFs, "lesboys"/"gaygirls" or whatever u guys r calling urselves now, uhh people who sexualize stuff idc what, p3d0s/MAPS, z00ph1l3s, etc :((
-pls just dont be weird around me lol   
-
+##### dont be a creep pls
 
 
 
