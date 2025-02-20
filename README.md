@@ -6,8 +6,6 @@
 
 Hii im charlie!!
 
-![tumblr_d5fefe1e661fb481e450b7232a0640b3_0e609a68_400](https://github.com/user-attachments/assets/2782b0d3-e00e-4e96-b797-6f6d53508bb6)
-
 
 
 #### im transmasculine, as well as demisexual and biromantic
@@ -25,6 +23,8 @@ i have both a boyfriend and a moirail, both of whom i love very very very much
 # just general info!
 ### interests
 #### Homestuck, Splatoon 3, Dandy's World, 
+
+![tumblr_d5fefe1e661fb481e450b7232a0640b3_0e609a68_400](https://github.com/user-attachments/assets/2782b0d3-e00e-4e96-b797-6f6d53508bb6)
 
 ### DNI
 proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), people who indulge in nsfw (bodily a minor), transgender exclusive radical feminists, lesboys/turigirls (nothing against ANY of you as people), pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context.
