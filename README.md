@@ -52,6 +52,7 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_9359e63bcaaabc109e2f618871e25c04_b3b1a765_100](https://github.com/user-attachments/assets/a9055cd5-3770-490f-be71-f720b37fe13d)
 ![tumblr_75f1cf07b98b2833a656cc82c6455e78_b3677d14_100](https://github.com/user-attachments/assets/fa6f0e97-0722-42cb-8572-e5ff8ff6b713)
 ![tumblr_9f7aa7377efe3125cd1b656005fafed6_4b578370_100](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
+![tumblr_0f9cae316534ef9f4591028751a52131_b660ba5e_100](https://github.com/user-attachments/assets/8e02c573-e862-44c3-a0bd-c1852c660ed0)
 ![tumblr_81cf57fe5c328f3fc98408fe997dce8f_cf2ae4d7_100](https://github.com/user-attachments/assets/a8301637-38cd-4166-9600-e3acee785632)
 ![tumblr_fa02b46b8b5500870223b2129d7218a9_2497b93b_100](https://github.com/user-attachments/assets/4b775872-92b5-4b9b-b51f-950333942a69)
 ![tumblr_2df4b1c0029824f53aca67567a386bf4_40e8ba72_250](https://github.com/user-attachments/assets/98df67dd-c09a-407a-a6ee-b5df6e0a2a36)
@@ -59,6 +60,10 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_9c66656389c3bd8be0324138deda69b6_ca47414c_100](https://github.com/user-attachments/assets/9dd77d3d-e3ad-4d50-9630-626f4151cc9f)
 ![tumblr_fc358249c708bd5d60764de562061894_58535b34_100](https://github.com/user-attachments/assets/69d2f3e0-1596-4747-b32f-77c59215b28e)
 ![tumblr_b3ca8d2681a8f82dde9205a0775ed132_d64943a6_100](https://github.com/user-attachments/assets/a1dd201e-32fb-4ea8-80d8-8a1671048700)
+![tumblr_81aa99e18bb73c638b8312c799ab953e_666f7134_100](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
+![tumblr_c5eacb72eb25cd5bab7288f8ce6eff1d_88b9da47_100](https://github.com/user-attachments/assets/c08e5543-91b9-47a5-bdd0-9d724256a1a8)
+![tumblr_e2721869784c9ac067c98121988bdae5_d9ad8672_100](https://github.com/user-attachments/assets/8368b01e-f345-4f97-bd9c-337664405a20)
+
 
 
 
@@ -67,9 +72,19 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_70be341d9262f885cbad7259b2d44fdf_25b8a681_250](https://github.com/user-attachments/assets/5a4f8726-40ca-4297-a1e6-64cc81521f10)
 ![tumblr_8e4a59a3bc3aa75c20897869e194d772_46bc1141_250](https://github.com/user-attachments/assets/e91bc6e7-5332-4e52-bd49-1822e87fb8b4)
 ![tumblr_9080e46653decbc3147654a715d9c1a0_5ffc0461_250](https://github.com/user-attachments/assets/400fd626-b588-4740-86e0-db3ea80c1099)
+![tumblr_4fdf051c63de8e4c2055f9f12ca7db66_4bd9038f_250](https://github.com/user-attachments/assets/366fe5bb-bd88-4319-a040-41eab45eefca)
 ![tumblr_289fe39a190bca7f32b8465fa91803fd_8e0b4e0d_250](https://github.com/user-attachments/assets/5d310f28-b86a-4790-aa11-deb6cf767ced)
 ![tumblr_99b6a8f4bceb1873ec540bdc3efeaa9f_f8dd32cf_250](https://github.com/user-attachments/assets/25b11867-12f7-421a-97b1-df91913f0651)
 ![tumblr_a399188d7b65d88a6da0f165fb250b9a_b1b314ae_250](https://github.com/user-attachments/assets/e3906efa-112c-4c40-abd8-b6f32e877cf0)
+![tumblr_6d411ff8a1078b323346a5a516dcbfac_2a9d657a_250](https://github.com/user-attachments/assets/6676a739-dd09-473c-aa82-96bbe387ef74)
+![tumblr_6e68045d5a2af89729ed6f9b70c63625_e3e4f48b_250](https://github.com/user-attachments/assets/2bb45104-6aca-404c-a807-f3a521b8e2cf)
+![tumblr_68ee62df5954b818ee4894f6505cd92b_67869a61_250](https://github.com/user-attachments/assets/e6af14d7-4d6a-42ea-b798-e9445dde8abe)
+![tumblr_523f4aa0438cb2a9513083c01dec3e9d_b7150482_250](https://github.com/user-attachments/assets/a5090fe0-75a8-41ee-8cbd-4910aeab51b1)
+![tumblr_5c3142feae6a259f9bd9fdfa38727d4a_4389ff03_400](https://github.com/user-attachments/assets/c2fe5b22-750f-4756-aa6b-d35d2b4b958a)
+![tumblr_3a833307effe142cdf09ee878ffe4201_d865d9ac_250](https://github.com/user-attachments/assets/482b6043-f3f3-43ce-8087-3dd121f0ecb6)
+![tumblr_1924abf12d20626a7b1e5042eab130ea_134373f1_250](https://github.com/user-attachments/assets/6d1a9439-d00c-40ce-a1dc-1465fcfeec28)
+![tumblr_a188429940ba6a3db7c18d187f7a8c60_b864f242_250](https://github.com/user-attachments/assets/1a10cad1-93a5-4eff-b903-6953b3be245c)
+![tumblr_c88a6a0fd6049140ca595d63a11cd3e2_ca9ee4d1_250](https://github.com/user-attachments/assets/74bb2611-eedf-4487-99ef-89b17e3cd737)
 ![tumblr_8bf12a0dec54dde620bdc1f6d9f378be_103bcebc_250](https://github.com/user-attachments/assets/34af5308-e23a-4175-b6fe-29f442f3dceb)
 ![tumblr_aa2e21d0794bbcc8fd9bb9043ba5cb47_382e120f_250](https://github.com/user-attachments/assets/71694dc4-5e6b-4865-8a36-746d1db33fea)
 ![tumblr_cf14d21baf723fe091090e8c69225f27_6aa05122_250](https://github.com/user-attachments/assets/d7a887e0-14ae-4a6f-af7d-cdd42db42735)
