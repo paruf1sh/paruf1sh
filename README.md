@@ -6,6 +6,7 @@
 
 Hii im charlie!!
 
+![tumblr_d5fefe1e661fb481e450b7232a0640b3_0e609a68_400](https://github.com/user-attachments/assets/2782b0d3-e00e-4e96-b797-6f6d53508bb6)
 
 
 
