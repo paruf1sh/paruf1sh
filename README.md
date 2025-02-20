@@ -1,5 +1,5 @@
 
-![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
+![tumblr_f9e439ce15c2137ea786ea1b271743e0_ff58ae1a_1280](https://github.com/user-attachments/assets/360635e1-85f6-4380-89fb-2458cd37a7ff)
 
 # Nice to meet youuu, ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 ### welcome to my page !! 
@@ -127,6 +127,6 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 # ty for reading! have a great day X)
 
 ![Untitled65_20250219222019](https://github.com/user-attachments/assets/2e5196dc-2329-4caa-a80c-378e594e5a44)
-
+![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
 
 
