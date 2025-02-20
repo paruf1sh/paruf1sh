@@ -1,5 +1,6 @@
 
-![tumblr_168c20a0a327548dfba708ac9583aa3a_157dc96d_1280](https://github.com/user-attachments/assets/fcbd1728-9953-4ffe-98c9-ac7461e20112)
+![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
+
 # Nice to meet youuu,
 #### welcome to my page !! 
 
