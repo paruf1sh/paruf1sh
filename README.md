@@ -97,5 +97,6 @@ pls just dont be weird around me lol
 
 
 # ty for reading! have a great day X)
-![Untitled66_20250219230156](https://github.com/user-attachments/assets/14f3e6e7-e8a1-405e-a247-ac3760529e71)
+![Untitled66_20250219230156](https://github.com/user-attachments/assets/52bc36f0-dcdc-468c-947a-0c6bd0b2a265)
+
 
