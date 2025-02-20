@@ -9,8 +9,7 @@ Hii im charlie!!
 
 
 
-### im transmasculine, as well as demisexual and biromantic ![KPqb1S5](https://github.com/user-attachments/assets/5303724b-5cb0-42e5-a166-4d76002a6bac)
-
+### im transmasculine, as well as demisexual and biromantic
 
 i have both a boyfriend and a moirail, both of whom i love very very very much
 
@@ -37,7 +36,7 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_048632348fff1ffb19497dca2163d852_ad9e050c_640](https://github.com/user-attachments/assets/e5ed4942-7686-447e-a233-a43c0def57ee) 
 
 
-# blinky collection
+# blinky collection  ![KPqb1S5](https://github.com/user-attachments/assets/5303724b-5cb0-42e5-a166-4d76002a6bac)
 
 ![image](https://github.com/user-attachments/assets/d7a538a9-1f49-4859-9102-f665bf74651c)
 ![tumblr_fa7cb70163f5b7507c7aa60e6d055724_a0e6fb7e_1280](https://github.com/user-attachments/assets/83a12a72-68f4-4e7f-a1dc-c890f71d0020)
