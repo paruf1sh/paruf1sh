@@ -22,7 +22,7 @@ i have both a boyfriend and a moirail, both of whom i love very very very much
 
 # just general info!
 ### interests
-#### Homestuck, Splatoon 3, Dandy's World, 
+#### Homestuck, Splatoon 3, Dandy's World, Dreams of an Insomniac and Pastraspec's works in general, 
 
 ![tumblr_d5fefe1e661fb481e450b7232a0640b3_0e609a68_400](https://github.com/user-attachments/assets/2782b0d3-e00e-4e96-b797-6f6d53508bb6)
 
@@ -91,8 +91,10 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_cf14d21baf723fe091090e8c69225f27_6aa05122_250](https://github.com/user-attachments/assets/d7a887e0-14ae-4a6f-af7d-cdd42db42735)
 ![tumblr_f4fa447638a592977c9ae2092550a85a_6ae83647_250](https://github.com/user-attachments/assets/601f964c-c7c5-4b39-8779-b010c7688f6d)
 ![tumblr_09759965f7cd26bf98b28664f5b1085a_7ff180ae_250](https://github.com/user-attachments/assets/09298ea9-4e3c-40b8-96e3-86693edcb55f)
-![tumblr_8dcc675bfbf1f8d83146294b42d29d89_74190bd4_250](https://github.com/user-attachments/assets/201e54b6-e489-4c7f-9fb2-e165af248963)![tumblr_f5eb77aee6b1463234648f28320251c8_c81bcd68_250](https://github.com/user-attachments/assets/0e1e8281-66d4-495b-ab66-b910a25cd90d)
-![tumblr_a9aee366abbb1b87e0415601e2db305f_bea4061e_250](https://github.com/user-attachments/assets/1281bd6d-6639-4cf5-8a61-03e7655b4d15)![tumblr_0a7562c3b8e6f1d3a7a5a553168d59b2_fc34c012_250](https://github.com/user-attachments/assets/82a4d0a4-08c9-49d2-85ff-777acd02c135)
+![tumblr_8dcc675bfbf1f8d83146294b42d29d89_74190bd4_250](https://github.com/user-attachments/assets/201e54b6-e489-4c7f-9fb2-e165af248963)
+![tumblr_f5eb77aee6b1463234648f28320251c8_c81bcd68_250](https://github.com/user-attachments/assets/0e1e8281-66d4-495b-ab66-b910a25cd90d)
+![tumblr_a9aee366abbb1b87e0415601e2db305f_bea4061e_250](https://github.com/user-attachments/assets/1281bd6d-6639-4cf5-8a61-03e7655b4d15)
+![tumblr_0a7562c3b8e6f1d3a7a5a553168d59b2_fc34c012_250](https://github.com/user-attachments/assets/82a4d0a4-08c9-49d2-85ff-777acd02c135)
 ![tumblr_65332c6dd1e353d71580e6b54cceb8c8_21eb5bba_250](https://github.com/user-attachments/assets/1b91ad16-c83e-44a2-a868-7c4430c32133)
 ![tumblr_0ff92e0d86171a870acbf0451cb8edb2_3ab37f0e_250](https://github.com/user-attachments/assets/77b7e561-ce0a-4d0f-9af9-b70e27b3e240)
 ![tumblr_0678b322e7a67914319ea48836eb4a4c_96a50920_250](https://github.com/user-attachments/assets/e8720f3b-cfbd-4c9c-b0e8-c5ccab7d49fb)
