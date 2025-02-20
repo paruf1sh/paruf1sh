@@ -35,9 +35,7 @@ pls just dont be weird around me lol
 
 
 
-![tumblr_048632348fff1ffb19497dca2163d852_ad9e050c_640](https://github.com/user-attachments/assets/e5ed4942-7686-447e-a233-a43c0def57ee) ![tumblr_048632348fff1ffb19497dca2163d852_ad9e050c_640](https://github.com/user-attachments/assets/e5ed4942-7686-447e-a233-a43c0def57ee)
-
-
+![tumblr_048632348fff1ffb19497dca2163d852_ad9e050c_640](https://github.com/user-attachments/assets/e5ed4942-7686-447e-a233-a43c0def57ee) 
 
 
 # blinky collection
