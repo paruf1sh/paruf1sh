@@ -8,12 +8,12 @@ Hii im charlie!! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-
 
 
 
-### im transmasc, as well as techum and bisexual.currently taken by my lovely boyfriend, so dont flirt.
+### im transmasculine, as well as demisexual and biromantic
 
-i identify as computerkin and divinekin, making me both the divine AND the machine 😛 the flesh was ditched a long time ago.
+i have both a boyfriend and a moirail, both of whom i love very very very much
 
   DONT use pet names/nicknames if we aren't close. just call me Charlie. 
-  If i know u pretty well u can totally use nicknames (shout out to Chiffon, who calls me Charjabug, ur the best, dude.)
+  If i know u pretty well u can totally use nicknames, otherwise i'd rather you refrain
 
 
 
@@ -21,16 +21,16 @@ i identify as computerkin and divinekin, making me both the divine AND the machi
 
 
 # just general info!
-#### my dni and stuff hheeh
+### interests
+#### Homestuck, Splatoon 3, Dandy's World, 
+
+### DNI
 
 Int!!!: under 18 (im a minor), splatoon players, hermitcraft enjoyers (mostly the boatem crew, as thats who i watch lol), homestuck fans who arent borderline sexual offenders, cat people, LGBTQ+ freakos, other warrior cats kids who never quite grew out of it, furries, danny phantom fans, fellow objectkissers/techkissers, and other nice people!!!! 
-
-![tumblr_790d398dcb58198e3588497d8ba4814d_a28af40e_250](https://github.com/user-attachments/assets/6b6f726b-675e-48fe-920b-f990cdacd61d)
 
 Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), b0ndage/nsfw ponytown skins, TERFs, "lesboys"/"gaygirls" or whatever u guys r calling urselves now, uhh people who sexualize stuff idc what, p3d0s/MAPS, z00ph1l3s, etc :((
 pls just dont be weird around me lol   
 
-![tumblr_e3b357fc5b16ef7f6c842c529c9926ad_890c19ed_250](https://github.com/user-attachments/assets/2578d4da-822f-4725-aa73-1c5ee9f6ee50)
 
 
 
