@@ -11,11 +11,17 @@ Hii im charlie!!
 
 #### im transmasculine, as well as demisexual and biromantic
 
-i have both a boyfriend and a moirail, both of whom i love very very very much
+i have both a boyfriend and a moirail/qpp, both of whom i love very very very much
 
   DONT use pet names/nicknames if we aren't close. just call me Charlie. 
   If i know u pretty well u can totally use nicknames, otherwise i'd rather you refrain
 
+## MAIN FRONTS
+-  CHARLIE (me!) - he / star - Host + Memory Holder 
+
+-  TYZIAS  - she / he ∿ Stabilizer + Internal Self Helper 
+
+- CLYDE  - it / he ∿ Protector  +  Mood Booster
 
 
 #### if we're close and you dont have me added yet, ask me for my discord username!
