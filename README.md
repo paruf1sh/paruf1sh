@@ -43,14 +43,13 @@ pls just dont be weird around me lol
 
 # blinky collection
 
-![tumblr_aea09b7ecfbc13431f362f2b3b7346fe_32d46b0e_500](https://github.com/user-attachments/assets/f7475b84-da8a-4576-9c68-2af11e3cc68c)
 ![image](https://github.com/user-attachments/assets/d7a538a9-1f49-4859-9102-f665bf74651c)
 ![tumblr_fa7cb70163f5b7507c7aa60e6d055724_a0e6fb7e_1280](https://github.com/user-attachments/assets/83a12a72-68f4-4e7f-a1dc-c890f71d0020)
 ![tumblr_3c0cec249839f9d8df59fa349a2153a6_1ab5745e_640](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
 ![tumblr_158a5039c43c79c785812700d21c0748_75bb94ae_400](https://github.com/user-attachments/assets/2694fc00-154b-4f75-a077-407a623105d8)
 ![tumblr_dc2d25bf51f9e92727ae5817181ca216_40ae1f88_400](https://github.com/user-attachments/assets/79495303-33e1-49c1-b294-890081c079ff)
+![tumblr_aea09b7ecfbc13431f362f2b3b7346fe_32d46b0e_500](https://github.com/user-attachments/assets/f7475b84-da8a-4576-9c68-2af11e3cc68c)
 ![tumblr_014595f7dfc0a856918cae186b02fd96_cf6f90be_500](https://github.com/user-attachments/assets/530c4027-cf17-43e6-940a-62827b997487)
-![tumblr_a6d9fe072078af3505391c474db24a5f_376ea805_250](https://github.com/user-attachments/assets/dbd946fd-fc91-4685-acc2-207128d25d85)
 
 ![tumblr_68bb9e71ec030bfeb579002c6761aa36_9f052121_100](https://github.com/user-attachments/assets/c8c45ca7-ddc3-407c-a642-45d113a3c228)
 ![tumblr_1587444382105fb6774da80145174bb4_5f1f19b3_250](https://github.com/user-attachments/assets/3a2ace86-f7aa-4a78-8f02-7c72976303ec)
