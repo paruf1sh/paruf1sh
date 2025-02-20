@@ -64,8 +64,6 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_b3ca8d2681a8f82dde9205a0775ed132_d64943a6_100](https://github.com/user-attachments/assets/a1dd201e-32fb-4ea8-80d8-8a1671048700)
 ![tumblr_81aa99e18bb73c638b8312c799ab953e_666f7134_100](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
 ![tumblr_c5eacb72eb25cd5bab7288f8ce6eff1d_88b9da47_100](https://github.com/user-attachments/assets/c08e5543-91b9-47a5-bdd0-9d724256a1a8)
-
-
 ![tumblr_e2721869784c9ac067c98121988bdae5_d9ad8672_100](https://github.com/user-attachments/assets/8368b01e-f345-4f97-bd9c-337664405a20)
 
 
