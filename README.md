@@ -32,7 +32,7 @@ i have both a boyfriend and a moirail/qpp, both of whom i love very very very mu
 
 # just general info! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 ### interests
-#### Homestuck, Splatoon 3, Dandy's World, Dreams of an Insomniac and Pastraspec's works in general, 
+#### Homestuck, Splatoon 3, Dandy's World, Dreams of an Insomniac and Pastraspec's works in general, Vita Carnis, FNAF:SB, Hermitcraft and the Life series, old technology, Minecraft
 
 ![tumblr_d5fefe1e661fb481e450b7232a0640b3_0e609a68_400](https://github.com/user-attachments/assets/2782b0d3-e00e-4e96-b797-6f6d53508bb6)
 
