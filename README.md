@@ -1,7 +1,8 @@
 
 ![tumblr_f9e439ce15c2137ea786ea1b271743e0_ff58ae1a_1280](https://github.com/user-attachments/assets/360635e1-85f6-4380-89fb-2458cd37a7ff)
 
-# Nice to meet youuu, ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
+
+# Nice to meet youuu, ![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
 ### welcome to my page !! 
 
 Hii im charlie!!
@@ -25,7 +26,7 @@ i have both a boyfriend and a moirail, both of whom i love very very very much
 
 
 
-# just general info!
+# just general info! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 ### interests
 #### Homestuck, Splatoon 3, Dandy's World, Dreams of an Insomniac and Pastraspec's works in general, 
 
