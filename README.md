@@ -19,7 +19,7 @@ i have both a boyfriend and a moirail, both of whom i love very very very much
 
 #### if we're close and you dont have me added yet, ask me for my discord username!
 ![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
-![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/d4b4409f-9db2-4179-b22b-ee3edbf6b12b)
+![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
 
 
 
