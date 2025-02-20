@@ -5,8 +5,6 @@
 
 Hii im charlie!! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 
-![tumblr_a0bd00480ec982162c855b48f0bd0071_0be33647_100](https://github.com/user-attachments/assets/f284f430-3d79-494c-9f21-4e6c43a2be75)
-
 
 
 
@@ -35,8 +33,9 @@ pls just dont be weird around me lol
 ![tumblr_e3b357fc5b16ef7f6c842c529c9926ad_890c19ed_250](https://github.com/user-attachments/assets/2578d4da-822f-4725-aa73-1c5ee9f6ee50)
 
 
-![tumblr_858d1ed36949482778e5b0a633268d5b_a879ab22_2048](https://github.com/user-attachments/assets/d2ef2639-632f-4f3f-afde-c5178513c462)
 
+
+![tumblr_048632348fff1ffb19497dca2163d852_ad9e050c_640](https://github.com/user-attachments/assets/e5ed4942-7686-447e-a233-a43c0def57ee)
 
 
 
